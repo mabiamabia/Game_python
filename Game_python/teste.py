@@ -1,0 +1,1 @@
+comparação python com chute
